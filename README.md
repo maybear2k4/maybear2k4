@@ -1,4 +1,4 @@
-hi all ^w^ my name is may
+hi all!! my name is may
 
 i'm currently a student in a computer science program at a colorado university
 
